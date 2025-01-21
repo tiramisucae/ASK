@@ -21,10 +21,10 @@ Do we have free will? Ontologically, the answer could be yes or no. Psychologica
 
 - Hong, E. K., **Kim, J.**, & Choi, I. (2025). Mapping meaning and pleasure on the temporal horizon: Long-term orientation predicts preference for meaningful over pleasurable activities. European Journal of Social Psychology. Advance online publication.
 
-- Rivera, G. N., **Kim, J.**, Kelley, N. J., Hicks, J. A., & Schlegel, R. J. (2024). Liking predicts judgments of authenticity in real-time interactions more robustly than personality states or affect. Personality and Social Psychology Bulletin. Advance online publication.
-
-- Hong, E. K., **Kim, J.**, & Choi, I. (2023). Implicit theories of happiness: When happiness is viewed as changeable, happy people are perceived much more positively than unhappy people. Personality and Social Psychology Bulletin. Advance online publication.
-
 - Guthrie, D., Maffly-Kipp, J., Gause, C., **Kim, J.**, Martela, F., & Hicks, J. A. (2025). The role of interpersonal mattering vs. cosmic mattering in the experience of meaning in life. The Journal of Positive Psychology, 20(1), 136–150.
 
+- Rivera, G. N., **Kim, J.**, Kelley, N. J., Hicks, J. A., & Schlegel, R. J. (2024). Liking predicts judgments of authenticity in real-time interactions more robustly than personality states or affect. Personality and Social Psychology Bulletin. Advance online publication.
+
 - Kim, E., Yun, G., **Lee, D. Y.**, & Kim, B. (2024). Posttraumatic Growth Processes in Mothers of Children with Developmental Disabilities: A Thematic Analysis of Autobiographical Writing. Korean Journal of Culture and Social Issue, 30(4), 507-540.
+
+- Hong, E. K., **Kim, J.**, & Choi, I. (2023). Implicit theories of happiness: When happiness is viewed as changeable, happy people are perceived much more positively than unhappy people. Personality and Social Psychology Bulletin. Advance online publication.
