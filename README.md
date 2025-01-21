@@ -31,3 +31,10 @@ Do we have free will? Ontologically, the answer could be yes or no. Psychologica
 - Kim, E., Yun, G., **Lee, D. Y.**, & Kim, B. (2024). Posttraumatic Growth Processes in Mothers of Children with Developmental Disabilities: A Thematic Analysis of Autobiographical Writing. Korean Journal of Culture and Social Issue, 30(4), 507-540.
 
 - Hong, E. K., **Kim, J.**, & Choi, I. (2023). Implicit theories of happiness: When happiness is viewed as changeable, happy people are perceived much more positively than unhappy people. Personality and Social Psychology Bulletin. Advance online publication.
+
+# Announcement
+
+We are recruiting graduate students.
+If you are interested, please contact Professor Jinhyung Kim by email below.
+
+jinhyung@sogang.ac.kr
