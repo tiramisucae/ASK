@@ -17,4 +17,10 @@ Whether we like it or not, we eventually face a fundamental question about our e
 
 Do we have free will? Ontologically, the answer could be yes or no. Psychologically, however, it is more important to believe that we have free will. Research has discovered that endorsing a belief in free will is phenomenologically more natural and also has a moral-regulatory function.
 
-## 
+# Latest Publication
+
+- Hong, E. K., Kim, J., & Choi, I. (2025). Mapping meaning and pleasure on the temporal horizon: Long-term orientation predicts preference for meaningful over pleasurable activities. European Journal of Social Psychology. Advance online publication.
+
+- Rivera, G. N., Kim, J., Kelley, N. J., Hicks, J. A., & Schlegel, R. J. (2024). Liking predicts judgments of authenticity in real-time interactions more robustly than personality states or affect. Personality and Social Psychology Bulletin. Advance online publication.
+
+- Hong, E. K., Kim, J., & Choi, I. (2023). Implicit theories of happiness: When happiness is viewed as changeable, happy people are perceived much more positively than unhappy people. Personality and Social Psychology Bulletin. Advance online publication.
